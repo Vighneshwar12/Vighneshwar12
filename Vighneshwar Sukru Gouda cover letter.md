@@ -24,7 +24,7 @@ My technical skills can enhance your company’s image. I am really looking forw
 
 part of your company.
 
-Please contact me at [visu18me@cmrit.ac.in](mailto:Visu18me@cmrit.ac.in)[ ](mailto:Visu18me@cmrit.ac.in)or +91 8197427365. I have enclosed my resume
+Please contact me at [visu18me@cmrit.ac.in](mailto:Visu18me@cmrit.ac.in)[ ](mailto:Visu18me@cmrit.ac.in)or +91 9380516308. I have enclosed my resume
 
 and looking forward to meeting.
 
